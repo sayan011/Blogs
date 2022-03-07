@@ -1,4 +1,4 @@
-## What's NFT??(A bit too much Simplfied)
+## What's NFT??(A bit too much Simplified)
 
 # So..What is All the Hype about?
 
