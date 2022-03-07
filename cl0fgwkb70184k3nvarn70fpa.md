@@ -4,7 +4,7 @@
 
 
 
-If you are not living under a rock, you have definitely heard of NFT. Just to give you a little idea about the level of buzz around NFTs, let me say that this👇 was sold for  Nearly $70 million.
+If you are not living under a rock, you have definitely heard of NFT. Just to give you a little idea about the level of buzz around NFTs, let me say that this👇 was sold for  Nearly $69 million.
 
 ![Beeple_ART_NEW.jpg](https://cdn.hashnode.com/res/hashnode/image/upload/v1646553006159/8iLgREt8b.jpg)
 
