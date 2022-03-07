@@ -8,7 +8,7 @@ If you are not living under a rock, you have definitely heard of NFT. Just to gi
 
 ![Beeple_ART_NEW.jpg](https://cdn.hashnode.com/res/hashnode/image/upload/v1646553006159/8iLgREt8b.jpg)
 
-This digital art work by American artist Mike Winkelmann, better known by his artist name Beeple was auctioned by Christie’s at a standalone online auction, which took place from February 25 to March 11.
+This digital art work by American artist Mike Winkelmann, better known by his artist name Beeple was auctioned by Christie’s at a standalone online auction, which took place from February 25 to March 11,2021.
 
 # What Exactly is an NFT?
 If you google about it's definition you will most likely find something like this
